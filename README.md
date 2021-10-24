@@ -2,7 +2,7 @@
 - 👀 I’m interested in Business Analyst and Blockchain
 - 🌱 I’m currently learning Management Information System
 - 💞️ I’m looking to collaborate on Business Analyst Internship 
-- 📫 How to reach me: dominhngoc.neu@gmail.com or linkedin.com/in/ngoc-do-04760b213
+- 📫 How to reach me: dominhngoc.neu@gmail.com 
 
 
 <!---
